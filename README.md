@@ -24,7 +24,7 @@
 <p align="center"><a href="https://t.me/https:WCGKING/BRANDEDCHATBOT"> <img src="https://img.shields.io/badge/CHECK-Demo%20Robot-black?style=for-the-badge&logo=Telegram" width="220" height="39"/></a></p>
 
 ### sᴜᴘᴘᴏʀᴛ
-<p align="center"><a href="https://t.me/BRANDED_WORLD"> <img src="https://img.shields.io/badge/JOIN-SUPPORT%20GROUP-black?style=for-the-badge&logo=Telegram" width="220" height="38.5"/></a></p>
+<p align="center"><a href="https://t.me/blade_x_support"> <img src="https://img.shields.io/badge/JOIN-SUPPORT%20GROUP-black?style=for-the-badge&logo=Telegram" width="220" height="38.5"/></a></p>
 <p align="center"><a href="https://t.me/BRANDRD_BOT"> <img src="https://img.shields.io/badge/JOIN-SUPPORT%20CHANNEL-black?style=for-the-badge&logo=Telegram" width="220" height="38.5"/></a></p>
 
 ## sᴘᴇᴄɪᴀʟ ᴛʜᴀɴᴋs 🚬🦋
